@@ -1,1 +1,1 @@
-linkedin.com/trtyronethomas/
+https://github.com/trtyronethomas

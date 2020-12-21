@@ -1,1 +1,1 @@
-https://github.com/trtyronethomas
+[GitHub](http://github.com)
